@@ -1,7 +1,9 @@
-# Hackintosh-STRIX-B360-G-i5-8400-RX580-Ventura
-![z5960895653866_ec0b9443ed487df0e731c25eaa6af002](https://github.com/user-attachments/assets/8372c439-01cd-43e7-95b4-e29ab2779a32)
+# Hackintosh-STRIX-B360-G-i5-8400-RX580-Ventu#ra
 
+# THIS IS GOOD GUY
+![z5960895653866_ec0b9443ed487df0e731c25eaa6af002](https://github.com/user-attachments/assets/8372c439-01cd-43e7-95b4-e29ab2779a32)
 ![z5960895812388_d568c53f273e15255fe20b738ce573a0](https://github.com/user-attachments/assets/fbf5e9ec-6ff6-45d1-984a-63486daf45af)
+# THAT IS BASTARD
 ![z5945809649551_cf30279aa2e8204cfb92082e406f324f](https://github.com/user-attachments/assets/c86cd5d6-06a8-4efe-b56b-84b26c55c0f8)
 ![z5945544116711_2982be7fed17db3f78056370c1018e68](https://github.com/user-attachments/assets/0117c2dc-81aa-4f1f-be8f-fa5af6f17fbe)
 ![z5945544116712_4ec47ac30f012fc7c520aec174e56e15](https://github.com/user-attachments/assets/61bca45d-a303-4a50-bf96-d5ee29dac613)
