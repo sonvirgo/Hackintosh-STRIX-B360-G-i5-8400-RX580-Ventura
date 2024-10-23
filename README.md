@@ -1,4 +1,4 @@
-# Hackintosh-STRIX-B360-G-i5-8400-RX580-Ventu#ra
+# Hackintosh-STRIX-B360-G-i5-8400-RX580-Ventura
 
 # THIS IS GOOD GUY
 ![z5960895653866_ec0b9443ed487df0e731c25eaa6af002](https://github.com/user-attachments/assets/8372c439-01cd-43e7-95b4-e29ab2779a32)
